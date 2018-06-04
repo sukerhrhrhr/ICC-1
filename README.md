@@ -1,29 +1,3 @@
 # ICC-1 
-l,.pl.ñ
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+jostin cara de alaro
+alvaro cara de jostin
